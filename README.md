@@ -1,11 +1,17 @@
 who i am:
+
 stock enthusiast
+
 gamer
+
 aspiring pentester
 
 what i like:
+
 dark mode
+
 blue
+
 being with friends
 
 what i don't like:
